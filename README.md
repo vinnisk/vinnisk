@@ -4,8 +4,7 @@
 - 👋 Hi, I’m @vinnisk (Edgar Alejandro Esparza)
 - 👀 I’m interested in vidogames and be youtuber [@elvinnis](https://www.youtube.com/@Vinnahi)
 - 🌱 I’m currently learning to program
-- 😄 Pronouns: he/him/they
-- ⚡ Fun fact: I love femboys and trans girls
+- ⚡ Fun fact: You knew that 1:07 AM are the first 67 minutes of the day?
 
 <!---
 vinnisk/vinnisk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
